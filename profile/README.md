@@ -13,6 +13,8 @@ Pacman 30th Anniversary Unblocked version game that works smoothly right in your
 - No downloads  
 - Just classic arcade fun—reborn.
 
+**[Click to play Pacman 30th Anniversary Unblocked Version for free!](https://1kb.link/tGeMO0)**
+
 ## What Is Pacman 30th Anniversary?
 
 Originally released by Google in 2010, this version commemorated 30 years since Pac-Man’s arcade debut.
